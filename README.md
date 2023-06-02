@@ -1,1 +1,0 @@
-# ysksn11.github.io
